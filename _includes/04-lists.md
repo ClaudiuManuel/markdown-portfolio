@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* :cry:
+* :smile:
+* ok ok i get it
